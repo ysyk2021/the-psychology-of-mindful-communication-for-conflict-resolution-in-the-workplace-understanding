@@ -1,8 +1,5 @@
 # Conclusion
 
-Chapter 8: Conclusion
-=====================
-
 In this book, we've explored the importance of mindful communication for effective conflict resolution in the workplace. By understanding the principles and strategies of mindful communication, we can improve workplace dynamics, prevent conflicts, and resolve conflicts more effectively when they do arise.
 
 Reflection on the psychology of mindful communication for conflict resolution in the workplace
