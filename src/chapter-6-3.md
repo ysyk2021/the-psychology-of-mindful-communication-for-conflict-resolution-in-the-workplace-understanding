@@ -1,5 +1,3 @@
-Sustaining a regular mindful communication practice
-=============================================================================================================
 
 In this chapter, we'll explore how to sustain a regular mindful communication practice by overcoming obstacles that may arise. By doing so, you can improve your ability to communicate effectively, prevent conflicts, and resolve them constructively when they do arise.
 

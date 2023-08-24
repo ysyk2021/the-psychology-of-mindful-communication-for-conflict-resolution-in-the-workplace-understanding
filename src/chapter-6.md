@@ -1,5 +1,3 @@
-Chapter 5: Overcoming Obstacles to Mindful Communication
-========================================================
 
 In this chapter, we'll explore common barriers to practicing mindful communication in the workplace and strategies for overcoming these barriers. We'll also discuss how to sustain a regular mindful communication practice.
 

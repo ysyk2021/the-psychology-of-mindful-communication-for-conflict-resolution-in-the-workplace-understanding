@@ -1,5 +1,3 @@
-Using mindful communication to improve understanding and connection
-=====================================================================================================================================
 
 In this chapter, we'll explore how to apply mindful communication in conflict resolution. By using these techniques, you can improve your ability to understand the perspectives of others, build trust, and resolve conflicts constructively.
 

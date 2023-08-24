@@ -1,5 +1,3 @@
-Chapter 3: Techniques and Exercises for Mindful Communication
-=============================================================
 
 In this chapter, we'll explore techniques and exercises for practicing mindful communication in the workplace. We'll discuss mindfulness-based techniques for improving workplace communication, active listening and empathy-building exercises, and strategies for cultivating a mindful approach to communication.
 

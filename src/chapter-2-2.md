@@ -1,5 +1,3 @@
-Impact of communication on workplace conflict
-============================================================================================================
 
 In this chapter, we'll explore the impact of communication on workplace conflict. By understanding these principles and strategies, you can become more effective in managing workplace conflicts and improving communication.
 

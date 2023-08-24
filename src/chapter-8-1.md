@@ -1,5 +1,3 @@
-Managing difficult emotions in workplace communication
-=================================================================================================================
 
 In this chapter, we'll explore how mindful communication can help us manage difficult emotions in the workplace. By using these techniques, we can improve our ability to regulate emotions, prevent conflicts, and communicate effectively.
 

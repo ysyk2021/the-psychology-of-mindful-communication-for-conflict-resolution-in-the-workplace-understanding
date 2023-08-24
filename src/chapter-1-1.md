@@ -1,5 +1,3 @@
-Overview of the book
-==================================
 
 In this book, we will explore the importance of mindful communication for effective conflict resolution in the workplace. We'll examine how communication impacts workplace dynamics and conflicts, as well as strategies for improving communication and resolving conflicts through mindfulness.
 

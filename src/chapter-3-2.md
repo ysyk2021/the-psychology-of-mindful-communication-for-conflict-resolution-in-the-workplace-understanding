@@ -1,5 +1,3 @@
-Relationship between mindfulness and communication in conflict resolution
-===========================================================================================================================
 
 In this chapter, we'll explore the relationship between mindfulness and communication in conflict resolution. By understanding these principles and strategies, you can become more effective in managing workplace conflicts and improving communication.
 

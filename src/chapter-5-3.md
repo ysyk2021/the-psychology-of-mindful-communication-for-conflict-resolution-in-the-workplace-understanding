@@ -1,5 +1,3 @@
-Letting go of judgment and criticism through mindful communication
-====================================================================================================================================
 
 In this chapter, we'll explore how to let go of judgment and criticism through mindful communication. By using these techniques, you can improve your ability to respond to conflicts constructively and build stronger relationships with colleagues.
 

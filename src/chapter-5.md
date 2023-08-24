@@ -1,5 +1,3 @@
-Chapter 4: Applying Mindful Communication in Conflict Resolution
-================================================================
 
 In this chapter, we'll explore how to apply mindful communication in conflict resolution. We'll discuss how mindful communication can improve understanding and connection, the benefits of using mindful communication to resolve workplace conflicts, and how to let go of judgment and criticism through mindful communication.
 

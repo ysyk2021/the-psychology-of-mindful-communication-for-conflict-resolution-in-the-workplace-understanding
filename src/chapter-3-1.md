@@ -1,5 +1,3 @@
-Definition and benefits of mindful communication
-==================================================================================================
 
 In this chapter, we'll introduce the concept of mindful communication and explore its definition and benefits. By understanding these principles and strategies, you can become more effective in conflict resolution and improve workplace dynamics.
 

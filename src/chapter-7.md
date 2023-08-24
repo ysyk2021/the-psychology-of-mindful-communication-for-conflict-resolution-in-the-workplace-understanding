@@ -1,5 +1,3 @@
-Chapter 6: Mindful Communication and Building Trust
-===================================================
 
 In this chapter, we'll explore how mindful communication can help build trust in the workplace. We'll discuss how to cultivate trust through mindful communication, develop healthy boundaries, and strengthen workplace relationships.
 

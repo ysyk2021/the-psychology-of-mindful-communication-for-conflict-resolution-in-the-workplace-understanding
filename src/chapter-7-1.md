@@ -1,5 +1,3 @@
-Cultivating trust through mindful communication
-====================================================================================================
 
 In this chapter, we'll explore how mindful communication can help build trust in the workplace. By using these techniques, you can improve your ability to communicate effectively, prevent conflicts, and resolve them constructively when they do arise.
 

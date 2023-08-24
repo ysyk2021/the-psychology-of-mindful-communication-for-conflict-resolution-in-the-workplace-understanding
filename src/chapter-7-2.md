@@ -1,5 +1,3 @@
-Developing healthy boundaries through mindful communication
-================================================================================================================
 
 In this chapter, we'll explore how mindful communication can help develop healthy boundaries in the workplace. By understanding these principles and strategies, you can become more effective in conflict resolution and improve workplace dynamics.
 

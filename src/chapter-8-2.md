@@ -1,5 +1,3 @@
-Using mindful communication to cope with stress and anxiety
-======================================================================================================================
 
 In this chapter, we'll explore how mindful communication can help us cope with stress and anxiety in the workplace. By using these techniques, we can improve our ability to regulate emotions, prevent conflicts, and communicate effectively.
 

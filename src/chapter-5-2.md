@@ -1,5 +1,3 @@
-Benefits of mindful communication for resolving workplace conflicts
-=====================================================================================================================================
 
 In this chapter, we'll explore the benefits of using mindful communication for resolving workplace conflicts. By using these techniques, you can improve your ability to communicate effectively, prevent conflicts, and resolve them constructively when they do arise.
 

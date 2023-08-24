@@ -1,5 +1,3 @@
-Chapter 7: Mindful Communication and Emotional Regulation
-=========================================================
 
 In this chapter, we'll explore how mindful communication can help us regulate our emotions in the workplace. We'll discuss techniques for managing difficult emotions, coping with stress and anxiety, and building emotional intelligence through mindful communication.
 

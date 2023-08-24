@@ -1,4 +1,3 @@
-# Introduction
 
 In any workplace, conflicts are bound to arise. Whether it's a disagreement between colleagues, a miscommunication between departments, or a clash of personalities, conflicts can be stressful and disruptive to productivity. However, conflict resolution is an essential skill that can improve workplace culture and increase team cohesion.
 

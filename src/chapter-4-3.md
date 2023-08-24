@@ -1,5 +1,3 @@
-Strategies for cultivating a mindful approach to communication
-=============================================================================================================================
 
 In this chapter, we'll explore techniques and exercises for cultivating a mindful approach to communication. By practicing these strategies, you can improve your ability to communicate effectively, prevent conflicts, and resolve them constructively when they do arise.
 

@@ -1,5 +1,3 @@
-Evidence-based research supporting the effectiveness of mindful communication in conflict resolution
-======================================================================================================================================================
 
 In this chapter, we'll explore evidence-based research that supports the effectiveness of mindful communication in conflict resolution. By understanding these principles and strategies, you can become more effective in managing workplace conflicts and improving communication.
 

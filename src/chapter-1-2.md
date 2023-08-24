@@ -1,5 +1,3 @@
-Importance of mindful communication in conflict resolution in the workplace
-=========================================================================================
 
 Effective communication is critical to success in the workplace, but conflicts are inevitable and can arise from misunderstandings, differences in opinion, or competing interests. In order to resolve conflicts effectively, it is important to practice mindful communication.
 

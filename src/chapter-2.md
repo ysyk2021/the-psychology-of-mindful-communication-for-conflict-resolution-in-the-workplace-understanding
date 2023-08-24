@@ -1,5 +1,3 @@
-Chapter 1: Understanding Workplace Communication and Conflict
-=============================================================
 
 In this chapter, we'll explore the dynamics of workplace communication and conflict. We'll discuss common communication challenges in the workplace, the impact of communication on workplace conflict, and effective conflict resolution strategies for the workplace.
 

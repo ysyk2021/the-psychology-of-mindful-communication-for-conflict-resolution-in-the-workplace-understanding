@@ -1,5 +1,3 @@
-Active listening and empathy-building exercises
-==============================================================================================================
 
 In this chapter, we'll explore some techniques and exercises for practicing mindful communication in the workplace. By using these techniques, you can improve your ability to communicate effectively, prevent conflicts, and resolve them constructively when they do arise.
 

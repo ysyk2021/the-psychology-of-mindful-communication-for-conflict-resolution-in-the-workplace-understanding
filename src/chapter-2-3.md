@@ -1,5 +1,3 @@
-Effective conflict resolution strategies for the workplace
-=========================================================================================================================
 
 In this chapter, we'll explore the importance of effective communication in the workplace, as well as strategies for resolving conflicts effectively. By understanding these principles and strategies, you can become more effective in managing workplace conflicts and improving communication.
 

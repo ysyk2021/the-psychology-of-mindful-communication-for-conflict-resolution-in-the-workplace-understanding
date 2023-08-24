@@ -1,5 +1,3 @@
-Mindfulness-based techniques for improving workplace communication
-=================================================================================================================================
 
 In this chapter, we'll explore some mindfulness-based techniques for improving workplace communication. By using these techniques, you can improve your ability to communicate effectively, prevent conflicts, and resolve them constructively when they do arise.
 

@@ -1,5 +1,3 @@
-Common communication challenges in the workplace
-===============================================================================================================
 
 In this chapter, we'll explore common communication challenges in the workplace. By understanding these principles and strategies, you can become more effective in managing workplace conflicts and improving communication.
 
