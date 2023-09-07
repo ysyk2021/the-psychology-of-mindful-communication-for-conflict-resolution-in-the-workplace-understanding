@@ -12,3 +12,7 @@ Finally, the third section of the book provides practical strategies for using m
 Overall, this book aims to provide readers with the knowledge and tools necessary to cultivate mindful communication skills and become more effective at resolving conflicts in the workplace. By using mindful communication, individuals and teams can build stronger relationships, foster greater understanding, and achieve greater success in their careers.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
