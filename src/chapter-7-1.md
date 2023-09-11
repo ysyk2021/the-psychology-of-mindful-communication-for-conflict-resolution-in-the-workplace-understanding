@@ -1,5 +1,4 @@
-Chapter 6: Cultivating Trust through Mindful Communication
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Trust is a foundational element of successful conflict resolution in the workplace. Without trust, communication becomes strained, conflicts escalate, and collaboration suffers. In this chapter, we will explore the significance of cultivating trust through mindful communication.
 

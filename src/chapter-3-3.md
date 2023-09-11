@@ -1,5 +1,4 @@
-Chapter 8: Evidence-Based Research Supporting the Effectiveness of Mindful Communication in Conflict Resolution
-===============================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In recent years, there has been an increasing body of evidence-based research supporting the effectiveness of mindful communication in conflict resolution. This chapter will explore some of the key findings from research studies that highlight the positive impact of mindful communication on conflict resolution in the workplace.
 

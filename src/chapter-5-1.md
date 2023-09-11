@@ -1,5 +1,4 @@
-Chapter 6: Using Mindful Communication to Improve Understanding and Connection
-==============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Mindful communication is a powerful tool for improving understanding and fostering deeper connections in the workplace. By cultivating present-moment awareness, active listening, and genuine curiosity, individuals can bridge gaps in communication, enhance understanding, and strengthen connections with their colleagues. In this chapter, we will explore how mindful communication can be utilized to improve understanding and connection in the workplace.
 

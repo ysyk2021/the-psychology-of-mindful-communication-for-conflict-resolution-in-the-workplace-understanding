@@ -1,5 +1,4 @@
-Chapter 10: Sustaining a Regular Mindful Communication Practice
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of sustaining a regular mindful communication practice for effective conflict resolution in the workplace. While learning about mindful communication is valuable, it is equally essential to establish and maintain a consistent practice that integrates mindfulness into daily interactions. By committing to a regular mindful communication practice, individuals can enhance their communication skills, build resilience, and create a harmonious work environment. Let's delve into the key aspects of sustaining a regular mindful communication practice.
 

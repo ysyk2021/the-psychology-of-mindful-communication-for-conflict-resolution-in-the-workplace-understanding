@@ -1,5 +1,4 @@
-Chapter 4: Letting Go of Judgment and Criticism through Mindful Communication
-=============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Judgment and criticism can be detrimental to effective conflict resolution in the workplace. They create barriers to understanding, hinder communication, and escalate conflicts. In this chapter, we will explore the importance of letting go of judgment and criticism and how mindful communication can support this process.
 

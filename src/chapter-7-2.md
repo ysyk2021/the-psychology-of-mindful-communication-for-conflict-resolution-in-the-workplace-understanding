@@ -1,5 +1,4 @@
-Chapter 10: Developing Healthy Boundaries through Mindful Communication
-=======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Establishing and maintaining healthy boundaries is essential for fostering positive and respectful relationships in the workplace. Mindful communication plays a crucial role in developing and upholding these boundaries. In this chapter, we will explore how mindful communication supports the process of establishing and maintaining healthy boundaries.
 

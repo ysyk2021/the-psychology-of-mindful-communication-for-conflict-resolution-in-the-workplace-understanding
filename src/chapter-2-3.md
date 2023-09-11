@@ -1,5 +1,4 @@
-Chapter 5: Effective Conflict Resolution Strategies for the Workplace
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Conflict is a natural part of human interaction, especially in the workplace. However, it is essential to manage conflicts effectively to maintain a healthy and productive work environment. In this chapter, we will explore effective conflict resolution strategies that can be applied in the workplace.
 

@@ -1,5 +1,4 @@
-Chapter 8: Mindfulness-Based Techniques for Improving Workplace Communication
-=============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore mindfulness-based techniques that can significantly enhance workplace communication and contribute to effective conflict resolution. Mindfulness is a practice of being fully present and aware of the current moment without judgment. By incorporating mindfulness into communication, individuals can cultivate better self-awareness, active listening, empathy, and overall clarity in their interactions. Let's delve into the key mindfulness-based techniques for improving workplace communication.
 

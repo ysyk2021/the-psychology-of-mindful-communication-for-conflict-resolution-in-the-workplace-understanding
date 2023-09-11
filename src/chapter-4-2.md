@@ -1,5 +1,4 @@
-Chapter 6: Active Listening and Empathy-Building Exercises
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of active listening and empathy-building exercises in mindful communication for effective conflict resolution in the workplace. Active listening and empathy are key components of understanding others' perspectives, fostering empathy, and creating a foundation for resolving conflicts with compassion. By incorporating these exercises into their practice, individuals can enhance their communication skills and promote a more harmonious work environment. Let's delve into the key active listening and empathy-building exercises.
 

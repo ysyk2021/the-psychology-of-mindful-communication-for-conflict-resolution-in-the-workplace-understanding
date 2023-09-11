@@ -1,5 +1,4 @@
-Chapter 4: Common Barriers to Practicing Mindful Communication in the Workplace
-===============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore common barriers that individuals may encounter when trying to practice mindful communication in the workplace. Understanding these barriers is crucial as it allows individuals to identify and overcome them effectively. By recognizing and addressing these obstacles, individuals can cultivate a more mindful and effective approach to communication and conflict resolution. Let's delve into the key common barriers to practicing mindful communication in the workplace.
 

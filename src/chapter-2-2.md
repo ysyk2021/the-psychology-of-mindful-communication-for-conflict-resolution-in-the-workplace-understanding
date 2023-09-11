@@ -1,5 +1,4 @@
-Chapter 2: Impact of Communication on Workplace Conflict
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective communication plays a critical role in conflict resolution within the workplace. How we communicate, both verbally and non-verbally, can significantly impact the occurrence and resolution of conflicts. In this chapter, we will explore the various ways in which communication influences workplace conflicts.
 

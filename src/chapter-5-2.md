@@ -1,5 +1,4 @@
-Chapter 8: Benefits of Mindful Communication for Resolving Workplace Conflicts
-==============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Mindful communication offers numerous benefits when it comes to resolving workplace conflicts. By incorporating mindfulness into our communication practices, we can transform conflicts into opportunities for growth and collaboration. In this chapter, we will explore the significant benefits of mindful communication for effective conflict resolution in the workplace.
 

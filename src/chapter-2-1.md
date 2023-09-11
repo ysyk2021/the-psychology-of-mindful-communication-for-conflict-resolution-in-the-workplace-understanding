@@ -1,5 +1,4 @@
-Chapter 3: Common Communication Challenges in the Workplace
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective communication is crucial for conflict resolution in the workplace. However, numerous challenges can hinder clear and mindful communication. In this chapter, we will explore some common communication challenges that arise in the workplace and understand how they can impact conflict resolution efforts.
 

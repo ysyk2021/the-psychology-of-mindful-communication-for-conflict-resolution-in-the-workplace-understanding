@@ -1,5 +1,4 @@
-Chapter 4: Relationship Between Mindfulness and Communication in Conflict Resolution
-====================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Mindfulness and communication are closely intertwined in the context of conflict resolution in the workplace. This chapter explores the relationship between mindfulness and communication, highlighting how mindfulness enhances communication during conflicts and contributes to effective conflict resolution.
 

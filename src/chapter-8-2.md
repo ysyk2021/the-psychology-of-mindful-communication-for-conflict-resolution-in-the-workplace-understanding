@@ -1,5 +1,4 @@
-Chapter 6: Using Mindful Communication to Cope with Stress and Anxiety
-======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Mindful communication offers valuable tools for coping with stress and anxiety in the workplace. This chapter explores how incorporating mindful communication practices can help individuals navigate stressful situations and manage anxiety effectively.
 

@@ -1,5 +1,4 @@
-Chapter 6: Strategies to Overcome These Barriers
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies to overcome barriers to mindful communication for effective conflict resolution in the workplace. While mindful communication is crucial for resolving conflicts, various barriers can hinder its effectiveness. By implementing specific strategies, individuals can navigate these barriers and create an environment conducive to open dialogue, understanding, and resolution. Let's delve into the key strategies to overcome these barriers.
 

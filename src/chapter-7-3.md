@@ -1,5 +1,4 @@
-Chapter 12: Strengthening Workplace Relationships with Mindful Communication
-============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Strong and positive workplace relationships are essential for a healthy and productive work environment. Mindful communication plays a significant role in strengthening these relationships by fostering understanding, empathy, and collaboration. In this chapter, we will explore how mindful communication can enhance workplace relationships.
 

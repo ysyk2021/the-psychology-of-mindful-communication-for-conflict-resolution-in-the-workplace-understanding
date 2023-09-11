@@ -1,5 +1,4 @@
-Chapter 2: Definition and Benefits of Mindful Communication
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Mindful communication is an intentional and present-moment approach to interpersonal interactions that emphasizes awareness, empathy, and non-judgment. This chapter explores the definition and benefits of mindful communication in the context of conflict resolution in the workplace.
 
